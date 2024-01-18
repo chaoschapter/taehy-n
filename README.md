@@ -1,4 +1,3 @@
-![857a3ba83c3bf8c11351346cb2d8b16c](https://github.com/bbeomgyu/bbeomgyu/assets/121232225/3675c90b-31a7-4b44-9dc6-5262cdca22b9)
 
 ㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤㅤ ㅤㅤ[rentry.co/tyvn](https://rentry.co/tyvn) for more info
 
